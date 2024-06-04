@@ -1,99 +1,71 @@
-Y hoy la fui a visitar caminando entre lápidas
-Y me di cuenta que
-La vida aquí es muy rápida
-Aunque ya lo he dicho antes, quiero recordarlo
+Sentada de noche en un banquillo
+Fumándome un cigarrillo
+Con un revolver en el bolsillo, de rencor lloraba
+Quizás por la soledad que me acompañaba
+Solo interrumpida por un padre que en alcohol se ahogaba
 
-Y como cuando tu recuerdas una historia que no debe ser contada
-Pero escuchas una voz, que te dice: ¡Cántala!
-Te exige: “Por favor, nárrale a tus semejantes
-La razón de lo que soy, la historia que se repite
-Muchas vidas, pero que no todos pueden expresar con tu don
-Y es por eso que tú debes servir de colección
-Para eso están los cantantes, para educar el corazón
-La historia de la que hablamos dice así
+Miraba
+El suelo mientras sacaba el cañón y apuntaba el nudo
+Que mi cuello asfixiaba
+Y cuando solo pensé en no pensar más nada
+Oí la voz de un hombre que se acercaba y me comentaba
 
-Hay un niño en Venezuela que creció como cualquiera
-Jugando en calles y aceras sin mucha preocupación
-Que fácil para los niños que de cualquier forma juegan
-Sin pensar que el mundo afuera fue creado pa’ el león
+Llevaba lentes oscuros y un bastón que lo guiaba
+Me pidió fuego y luego se sentó donde yo estaba
+De forma disimulada, guardé el arma de nuevo
+Me sequé la frente y le seguí la corriente aquel ciego
 
-Riendo se pasa el tiempo, jugando olvidas el hambre
-Hasta que vas comprendiendo la difícil situación
-Cuando ves a un niño afuera jugando con su Nintendo
-Viendo como sus dos padres son como en televisión: No
-Pelean, se abrazan, tiempo con el niño pasan
-Comunicación enlazan, se dicen frases de amor
+Él dijo el comentario de las estrellas
+De la naturaleza y de la luna
+Dijo que hay cosas bellas que aprecia mejor ahora
+Que no ve por causa de un cáncer sin cura
 
-Hay un chamo en Venezuela que poco a poco comprende
-Que la vida es diferente y que pudiera ser mejor
+Como la piel desnuda de tu pareja en tus brazos
+Como brindar ayuda a tu hijo y ver su primer paso
+Como ver el horizonte del mar
+O simplemente apreciar el desfile de un ocaso
 
-El niño que ya ha crecido por capricho del destino
-Recordó muchos caminos, vive solo con rencor, nada sueña
-Ni dormido, no confía ni en sus amigos, porque sabe
-Que el camino fue creado pa’ el león
+Fue entonces que le hice caso a lo que me decía
+¡Me sentí tan cobarde en aquel momento!
+Ya que ese hombre carecía de lo que yo tenía
+Sin embargo, agradecía cada segundo de aliento
 
-Y con una coraza va, va, va, y todo en blanco y negro ve, ve, ve
-En un espejo un día lo vi, y me dijo con su voz
-¡Booh! ¿Qué tal es verte a mi?
-Y con una coraza va, va, va, y todo en blanco y negro ve, ve, ve
-En un espejo un día lo vi, y me dijo con su voz
-¡Booh! ¿Qué tal es verme a ti?
+Cuando sientas que la vida te ignora
+Llora, pero valora mientras sonrías
+Alguien decía que no siempre lloverá
+En cambio, siempre
+Mañana será otro día
 
-El niño es adolescente, vive solo con su padre porque
-Su madre se ha ido, dicen que a un mundo mejor. Su padre
-Trabaja fuerte pero mientras está ausente la calle que
-Está caliente le sirve como tutor. Debe madurar temprano
-Supo que murió su hermano y aunque no le han preguntado
-Le causó un grave dolor
+Cuando sientas que la vida te ignora
+Llora, pero valora mientras sonrías
+Alguien decía que no siempre lloverá
+En cambio, siempre
+Mañana será otro día
 
-Hay un hombre en Venezuela que poco a poco comprende que
-La vida es diferente y que pudiera ser mejor, y ahora es
-Un adulto más que vive entre las ánimas que en sus recuerdos
-Ve los días como páginas de un libro sin final que busca terminarlo
+Con nuevo logros y nuevas caídas
+Con nuevas heridas causadas y recibidas
+Todo hemos sentido rencor a la vida
+Pero si nos la quitan, odiaremos la muerte enseguida
 
-Y como cuando ves el final de una historia sin haber
-Leído nada pero que sientes que hoy debe estar ya terminada
+La indecisión forma parte del ser humano
+Luchamos por metas que al tocarlas no nos conformamos
+Decimos: ¡Todo está malo!
+Y cuando estamos viejos
+Nos quejamos y hablamos de los buenos años añejos
 
-Le dice el corazón que la vida es asfixiante
-Se encierra en su habitación a escribir para sentir que no está aquí
+Si el reflejo en tu espejo no te hace feliz
+O piensas que la suerte te dejó de sonreír
+¿Por qué sufrir? Cuando puedes oír la mejor música
+(Que es) la de tu corazón latir
 
-Y con una coraza va, va, va, y todo en blanco y negro ve, ve, ve
-En un espejo un día lo vi, y me dijo con su voz
-¡Booh! ¿Qué tal es verte a mi?
-Y con una coraza va, va, va, y todo en blanco y negro ve, ve, ve
-En un espejo un día lo vi, y me dijo con su voz
-¡Booh! ¿Qué tal es verme a ti?
+Cuando sientas que la vida te ignora
+Llora, pero valora mientras sonrías
+Alguien decía que no siempre lloverá
+En cambio, siempre
+Mañana será otro día
 
-Hay un tipo en Venezuela que quiere morir tranquilo
-Planea meterse un tiro en un banquillo e’ callejón
-Hasta que un ciego le dijo que la vida es un suspiro
-Basta verla diferente pa'que ella sea mejor. El ciego
-Cambió su vida, le inspiro a escribir más vida, hallar
-Una salida en cada herida y situación
-
-Un poeta en Venezuela canta con la frente arriba lo
-Que la razón le diga y lo que dicta el corazón, sin
-Embargo la mentira suele provocarle ira por lo cual no
-Puede botar completamente el rencor
-
-Hay un tipo en Venezuela que aunque digan lo que digan
-Es real como cualquiera que sienta rencor y amor
-
-![descargar (6)](https://github.com/Celestialdestiny/Celestialdestiny/assets/171634769/5c847bca-3b6a-48ea-9652-328d2be59766)
-
-
-Y hoy la fui a visitar caminando entre lápidas
-Y me di cuenta que la vida aquí es muy rápida
-Pronto he de acompañarle
-Mientras tanto voy a cumplir con la misión que tengo aquí, si
-
-Y con una sonrisa va, va, va, y todo con empeño: Ve, ve, ve
-En un espejo un día lo vi, y me dijo con su voz
-¡Booh! ¿Qué tal es verte a mi?
-Y con una sonrisa va, va, va, y todo con empeño: Ve, ve, ve
-En un espejo un día lo vi, y me dijo con su voz
-¡Booh! ¿Qué tal es verme a ti?
-
-¿Qué tal es verme a ti?
-¿Qué tal es verme a ti?
-¿Qué tal es verme a ti?
+Cuando sientas que la vida te ignora
+Llora, pero valora mientras sonrías
+Alguien decía que no siempre lloverá
+En cambio, siempre
+Mañana será otro día. . .
