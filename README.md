@@ -69,3 +69,6 @@ Llora, pero valora mientras sonrías
 Alguien decía que no siempre lloverá
 En cambio, siempre
 Mañana será otro día. . .
+
+
+![gothish](https://github.com/Celestialdestiny/Celestialdestiny/assets/171634769/54678bdf-3d57-4e4b-9ed2-dd87dce55979)
