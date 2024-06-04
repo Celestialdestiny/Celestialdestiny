@@ -79,6 +79,9 @@ Puede botar completamente el rencor
 Hay un tipo en Venezuela que aunque digan lo que digan
 Es real como cualquiera que sienta rencor y amor
 
+![descargar (6)](https://github.com/Celestialdestiny/Celestialdestiny/assets/171634769/5c847bca-3b6a-48ea-9652-328d2be59766)
+
+
 Y hoy la fui a visitar caminando entre lápidas
 Y me di cuenta que la vida aquí es muy rápida
 Pronto he de acompañarle
