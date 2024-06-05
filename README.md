@@ -1,74 +1,35 @@
-Sentada de noche en un banquillo
-Fumándome un cigarrillo
-Con un revolver en el bolsillo, de rencor lloraba
-Quizás por la soledad que me acompañaba
-Solo interrumpida por un padre que en alcohol se ahogaba
+If you think I'm pretty, lay your hands on me
+Know you can't stop thinking 'bout it
+I know that you're shitty and you're bad for me
+But I can't stop thinking 'bout it
+If you think I'm pretty, lay your hands on me
+Know you can't stop thinking 'bout it
+I know that you're shitty and you're bad for me
+But I can't stop thinking 'bout it
 
-Miraba
-El suelo mientras sacaba el cañón y apuntaba el nudo
-Que mi cuello asfixiaba
-Y cuando solo pensé en no pensar más nada
-Oí la voz de un hombre que se acercaba y me comentaba
+Won't you give that shit a rest?
+Said you needed love, but you're only here for sex
+And I'm dyin' to be next
+Killed me once before
+I just come back more obsessed with you
+Nothing that I need to say
+That hasn't been said
+I don't need an apology
+Just show me instead
 
-Llevaba lentes oscuros y un bastón que lo guiaba
-Me pidió fuego y luego se sentó donde yo estaba
-De forma disimulada, guardé el arma de nuevo
-Me sequé la frente y le seguí la corriente aquel ciego
+If you think I'm pretty, lay your hands on me
+Know you can't stop thinking 'bout it
+I know that you're shitty and you're bad for me
+But I can't stop thinking 'bout it (won't stop thinking 'bout it)
+If you think I'm pretty, lay your hands on me
+Know you can't stop thinking 'bout it
+I know that you're shitty and you're bad for me
+But I can't stop thinking 'bout it
 
-Él dijo el comentario de las estrellas
-De la naturaleza y de la luna
-Dijo que hay cosas bellas que aprecia mejor ahora
-Que no ve por causa de un cáncer sin cura
+If you think I'm pretty, pre—, pre—, hands on, ha—, ha—
+Know you ca—
+If you, if you, prеtty, pre—, pre—
+If you think I'm pretty, pre—, pre—, hands on, ha—, ha—
+Know you ca—
+If you think I'm pretty, lay your hands on me (hehehe) 
 
-Como la piel desnuda de tu pareja en tus brazos
-Como brindar ayuda a tu hijo y ver su primer paso
-Como ver el horizonte del mar
-O simplemente apreciar el desfile de un ocaso
-
-Fue entonces que le hice caso a lo que me decía
-¡Me sentí tan cobarde en aquel momento!
-Ya que ese hombre carecía de lo que yo tenía
-Sin embargo, agradecía cada segundo de aliento
-
-Cuando sientas que la vida te ignora
-Llora, pero valora mientras sonrías
-Alguien decía que no siempre lloverá
-En cambio, siempre
-Mañana será otro día
-
-Cuando sientas que la vida te ignora
-Llora, pero valora mientras sonrías
-Alguien decía que no siempre lloverá
-En cambio, siempre
-Mañana será otro día
-
-Con nuevo logros y nuevas caídas
-Con nuevas heridas causadas y recibidas
-Todo hemos sentido rencor a la vida
-Pero si nos la quitan, odiaremos la muerte enseguida
-
-La indecisión forma parte del ser humano
-Luchamos por metas que al tocarlas no nos conformamos
-Decimos: ¡Todo está malo!
-Y cuando estamos viejos
-Nos quejamos y hablamos de los buenos años añejos
-
-Si el reflejo en tu espejo no te hace feliz
-O piensas que la suerte te dejó de sonreír
-¿Por qué sufrir? Cuando puedes oír la mejor música
-(Que es) la de tu corazón latir
-
-Cuando sientas que la vida te ignora
-Llora, pero valora mientras sonrías
-Alguien decía que no siempre lloverá
-En cambio, siempre
-Mañana será otro día
-
-Cuando sientas que la vida te ignora
-Llora, pero valora mientras sonrías
-Alguien decía que no siempre lloverá
-En cambio, siempre
-Mañana será otro día. . .
-
-
-![gothish](https://github.com/Celestialdestiny/Celestialdestiny/assets/171634769/54678bdf-3d57-4e4b-9ed2-dd87dce55979)
