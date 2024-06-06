@@ -3,7 +3,6 @@ A man will die
 But not his ideas
 
 Happy nation
-
 Living in a happy nation
 
 Where the people understand
