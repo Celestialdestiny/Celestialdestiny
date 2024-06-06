@@ -10,6 +10,7 @@ Where the people understand
 And dream of perfect man
 
 Situation leading to sweet salvation.
+
 For the people, for the good
 For mankind, brotherhood.
 ![Register - Login](https://github.com/Celestialdestiny/Celestialdestiny/assets/171634769/a3147bac-d0c1-4481-80f5-3ed271b94c5e)
