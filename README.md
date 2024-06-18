@@ -1,33 +1,51 @@
-Oh, father tell me, do we get what we deserve?
-Oh we get what we deserve
+You're gonna do
+What I tell you
+You live under my roof
+Follow my rules
+Don't speak
+Unless you're spoken to
+This whole room
+Don't need to know you
 
-And way down we go, go, go, go, go
-Way down we go, go, go, go, go
-So way down we go, go, go, go
-Way down we go
+I fucking hate my mom
+I hate my mom
+I hate my mom
+I hate my mom
 
-Oh, you let your feet run wild
-Time has come as we all 
-Oh, go down
-Yeah but for the fall oh, my
-Do you dare to look him right in the eyes? 
-Yeah
+It'd be better if
+You wore makeup
+But not too much
+Like a whore they fuck
+Wear more this
+But don't wear that
+That's too much black
+Eating makes you fat
 
-Because they will run you down
-Down till the dark
-Yes and they will run you down
-Down till you fall
-And they will run you down
-Down till you go
-Yeah so you can't crawl no more
+I fucking hate my mom
+I hate my mom
+I hate my mom
+I hate my mom
+I hate my mom
+I hate my mom
+I hate my mom
+I hate my mom
 
-And way down we go, go, go, go, go
-Way down we go, go, go, go, go
-So way down we go, go, go, go
-Because they will run you down
-Down till you fall
-Oh, way down we go
+If he bullies you
+It means he likes you
+You should say thank you
+12-year-olds like you
+Are too young to know abuse
+Why can't you just fuck boys like a normal girl would?
 
-![Kaleo - A_B  New CD](https://github.com/Celestialdestiny/Celestialdestiny/assets/171634769/47156411-c536-4239-9ce3-57251ba6a11e)
+I hate my mom
+I hate my mom
+I hate my mom
+Oh, I hate my mom (I hate my mom)
+I hate my mom, I hate my mom, I hate my mom, I hate my mom (I hate my mom)
+I hate my mom, I hate my mom, I hate my mom, I hate my mom (I hate my mom)
+I hate my mom, I hate my mom, I hate my mom, I hate my mom (I hate my mom)
+I hate my mother fucking mom
 
+I hate my mom.
 
+![descargar (12)](https://github.com/Celestialdestiny/Celestialdestiny/assets/171634769/38d574eb-6d0c-4cae-a4bf-97a085bf4882)
