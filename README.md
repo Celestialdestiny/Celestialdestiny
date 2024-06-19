@@ -49,5 +49,5 @@ My symptoms or my pain
 But you are my strange addiction
 Did you like it? Did you like that?
 Um, which part?
-––———————————————————————————————————————
-![❤️_🩹Evelyn baldur's gate 3❤️_🩹](https://github.com/Celestialdestiny/Celestialdestiny/assets/171634769/5770ca63-648d-4bb7-816c-c39d4528df55)
+––—————————————————————————————————————————————
+![descargar (8)](https://github.com/Celestialdestiny/Celestialdestiny/assets/171634769/449179cd-3dfc-4c08-9f11-0c420693557c)
