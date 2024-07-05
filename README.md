@@ -1,4 +1,4 @@
-ou don't own me
+You don't own me
 You don't own me
 
 Wow, let's go
