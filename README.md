@@ -1,53 +1,78 @@
-No, Billy, I haven't done that dance since my wife died
-There's a whole crowd of people out there
-Who need to learn how to do the Scarn
-Don't ask questions you don't wanna know
-Learned my lesson way too long ago
-To be talking to you, belladonna
-Shoulda taken a break, not an Oxford comma
-Take what I want when I wanna
-And I want ya
-Bad, bad news
-One of us is gonna lose
-I'm the powder, you're the fuse
-Just add some friction
-You are my strange addiction
-You are my strange addiction
-My doctors can't explain
-My symptoms or my pain
-But you are my strange addiction
-I'm really, really sorry, I think I was just relieved
-To see that Micheal Scarn got his confidence back
-Yeah, Michael, the movie is amazing, though
-It's like, one of the best movies I've ever seen in my life
-Deadly fever, please don't ever break
-Be my reliever 'cause I don't self-medicate
-And it burns like a gin and I like it
-Put your lips on my skin, and you might ignite it
-Hurts, but I know how to hide it
-Kinda like it
-Bad, bad news
-One of us is gonna lose
-I'm the powder, you're the fuse
-Just add some friction
-You are my strange addiction
-You are my strange addiction
-My doctors can't explain
-My symptoms or my pain
-But you are my strange addiction
-Bite my glass, set myself on fire
-Can't you tell I'm a crass? Can't you tell I'm wired?
-Tell me "nothing lasts," like I don't know
-You could kiss my-, asking about my motto
-You should enter in festivals, or carnivals
-Thoughts? Pretty good reaction
-It's pretty cool, right?
-You are my strange addiction
-You are my strange addiction
-My doctors can't explain
-My symptoms or my pain
-But you are my strange addiction
-Did you like it? Did you like that?
-Um, which part?
+ou don't own me
+You don't own me
+
+Wow, let's go
+But I'm Gerald (yeah)
+And I can always have just what I want (want)
+She's that baddest, I would love to flaunt
+Take her shopping, you know Yves Saint Laurent?
+But, nope (nope)
+She ain't with it though
+All because she got her own dough
+Boss bossed, if you don't know
+She could never ever be a broke hoe
+
+You don't own me
+I'm not just one of your many toys
+You don't own me
+Don't say I can't go with other boys
+
+Don't tell me what to do
+And don't tell me what to say
+Please, when I go out with you
+Don't put me on display
+
+You don't own me
+Don't try to change me in any way
+You don't own me
+Don't tie me down, 'cause I'd never stay
+
+Don't tell me what to do
+And don't tell me what to say
+Please, when I go out with you
+Don't put me on display
+
+Really though, honestly
+I get bored of basic bitches (no)
+She's the baddest, straight up vicious
+Texting her and asking her if she's alone
+And if she'd sent some pictures, she said no (what?)
+Well, goddamn (damn)
+She said: Come over and see it for yourself
+Never asking for your help
+Independent woman, she ain't for the shelf
+Nah (nah)
+She's the one
+Smoke with her till the weed is gone
+Stayin' up until we see the Sun, the baddest ever
+I swear she do it better than I've ever seen it done (done) (yeah)
+Never borrow, she ain't ever loan
+That's when she told me she ain't never
+Ever, ever, ever gonna be owned
+
+I don't tell you what to say
+I don't tell you what to do
+So just let me be myself
+That's all I ask of you
+
+I'm young and I love to be young
+I'm free and I love to be free
+To live my life the way I want
+To say and do whatever I please
+
+Hey (you don't own me) oh, no (okay)
+Oh, no, no, no (you don't own me)
+Oh, no, no, no
+You don't, you don't
+Hey (you don't own me)
+But just know (nah)
+You've never met somebody like me before though
+Nah, nah, nah, nah
+Nah, nah, nah (you don't own me)
+Eazy
+
+You don't own me
+(You don't own me)
 ,     ––——————————————————————————————      .
-![descargar (8)](https://github.com/Celestialdestiny/Celestialdestiny/assets/171634769/449179cd-3dfc-4c08-9f11-0c420693557c)
+![ada wong 𓂃 ࣪˖ ཐིཋྀ](https://github.com/Celestialdestiny/Celestialdestiny/assets/171634769/29c2c3d1-80cf-4160-81fd-297a5737b08e)
+
