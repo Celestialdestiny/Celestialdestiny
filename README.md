@@ -1,11 +1,10 @@
-''Do you truly think you can stand against the embodiment of nature's wrath? Once I eradicate your filthy soul, it will serve a greater purpose. A purpose that will feed the roots of a tree.'' 
 
-———————————————————————————————————————————————————————
-![GUYS I BEAT CH3 OF THE MIMIC YAHAHAHAHHA!1!!](https://github.com/user-attachments/assets/4ca10a13-e8bc-487f-ae32-8ccbf129d78a)
+Shearing your fealings with someone, when you are on the verge of deaht bring some 
+sort or comfort to you humans it's an instinct yo help
+minimize you fear and sorrow but in reality its imposible to know the 
+emotions, Empaty is a simply a meaningless human delusion...so tell me
+What is a hearth?.
+——————————————————————————————————————————————————————
+![Bleach Ulquiorra Schiffer](https://github.com/user-attachments/assets/365c933b-2618-4fae-8c84-8196c3349097)
 
-———————————————————————————————————————————————————————
-
-“	Over and over again you humans find ways to be parasites.”
-
-———————————————————————————————————————————————————————
-![descargar (16)](https://github.com/user-attachments/assets/4dedc950-e358-4375-97e4-e2c11eaadb95)
+——————————————————————————————————————————————————————
